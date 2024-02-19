@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Gam3B0y
+- 👋 Hi, I’m Me
 - 👀 I’m interested in many things.
 - 🌱 I’m currently learning a lot of stuff.
 - 💞️ I’m looking to collaborate on ...
